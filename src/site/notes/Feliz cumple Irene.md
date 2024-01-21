@@ -5,6 +5,8 @@
 
 # SORPRESAAA 
 
+[[Planes de trabajo\|Planes de trabajo]]
+
 Feliz cumpleaños!!!!
 
 Hola mamá, te he creado esta web como regalo de cumpleaños, no es perfecto pero deberías poder tener por fin una plataforma donde poder subir todo. Mi idea es poder hacer algunos cambios a la web para que pueda ajustarse a cómo te gustaría que se vea: colores, cosas que no quieres que aparezcan (si veo que sé quitarlas), fuentes de texto, tamaños , cosas así :) 
